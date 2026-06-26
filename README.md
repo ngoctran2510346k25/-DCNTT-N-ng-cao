@@ -16,7 +16,7 @@
 
 **[🔗 Mở ứng dụng ôn thi]([https://ngoctran2510346k25.github.io/-DCNTT-N-ng-cao/](https://ngoctran2510346k25.github.io/Advanced_application_of_IT/))**
 
-*([link GitHub Pages](https://ngoctran2510346k25.github.io/Advanced_application_of_IT/))*
+*([Click ngày vào link GitHub Pages để Ôn thi ỨDCNTT Nâng cao nhé!](https://ngoctran2510346k25.github.io/Advanced_application_of_IT/))*
 
 ---
 
